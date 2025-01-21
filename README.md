@@ -2,16 +2,16 @@ __________Primate Presser__________
 
 Roles:
 
-Ronney - HTML, 
+Ronney - uh
 
-Reece - 
+Reece - maybe
 
-Lance - 
+Lance - possibility
 
 -----------------------
 
 Plans:
 
-I. 
+I. code
 
-II.
+II. don't give up hope guys
